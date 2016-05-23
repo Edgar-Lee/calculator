@@ -1,3 +1,3 @@
 # calculator
 
-기술교육 - test
+기술교육 - testㅇㄴㄹㅇㄴㄹ
